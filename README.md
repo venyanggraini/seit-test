@@ -1,0 +1,1 @@
+# FinAccel-Technical-Test-SEIT
